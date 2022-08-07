@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AviannJubila
+- 👋 Hi, I’m @AviannaJubila
 - 👀 I’m interested in video games, martial arts & romance novels
 - 🌱 I’m currently learning how to code #fresher
 - 💞️ I’m looking to collaborate on game development
